@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+I am Victoria a new PM working to unify DX!
+- 😄 Pronouns: She/Hers
+- 👰‍♀️ I'm excited for my postponed wedding in October in Mexico 🇲🇽
+- 🚐 I'm an RV traveler 
+- 💬 Ask me about my Winnebago and how to not get stuck in the sand! 
+![PXL_20210507_031520326](https://user-images.githubusercontent.com/7578652/122439852-a01d8a80-cf61-11eb-9d83-cff3c4942438.jpg)
+
+- 📫 How to reach me: ...
+
 <!--
 **exvuma/exvuma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
